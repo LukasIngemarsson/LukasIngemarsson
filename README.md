@@ -1,1 +1,1 @@
-➣ 3rd Year M.Sc. in IT at LiU 
+M.Sc. in IT (specialized in AI/ML) at LiU 
