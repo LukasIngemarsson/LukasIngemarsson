@@ -1,1 +1,1 @@
-M.Sc. in IT (specialized in AI/ML) at LiU 
+M.Sc. IT Student at LiU (spec. in AI & ML)
